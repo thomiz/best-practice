@@ -1,3 +1,0 @@
-# Øyvinds beste vitser
-
-HAHA
